@@ -1,1 +1,0 @@
-# -layda.ozur
